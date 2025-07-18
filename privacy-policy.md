@@ -52,5 +52,4 @@ We may update this Privacy Policy occasionally. If we make changes, we’ll upda
 If you have questions or requests related to your privacy, you may contact us at:
 
 📧 support@musicvapey.com  
-(or replace with your actual contact info)
 
