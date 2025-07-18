@@ -1,6 +1,6 @@
 # Privacy Policy for MusicVapey
 
-Effective Date: [Insert Today’s Date]
+Effective Date: [7.18.2025]
 
 MusicVapey is committed to protecting your privacy. This Privacy Policy describes how we collect, use, and handle your information when you use our service.
 
